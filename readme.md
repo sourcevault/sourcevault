@@ -19,6 +19,7 @@
 
 🡒 Humanity saved due to galaxy brain level of technical debt.
 ```
+
 ```txt
 🡒 - 1,000,000 LOC  + 10,000 LOC.
 
@@ -33,6 +34,6 @@ Unlike other commodities, software creates it's own demand ( it's true for techn
 
 Most people were not "demanding" Google / social networks before it became **operational** 🏃🏼‍♂️.
 
-once you realize those economic realities, privateers who raise their flag to the artform become formidable foes ⚔.
+once you accept those economic realities, privateers who raise their 🏴‍☠️ in the name of the artform become formidable foes ⚔, this is the way 🧙🏼.
 
-Most repos you browse around here, you probably didn't realize you needed it ☺️.
+Most repos you browse ↓ here, you probably didn't realize you needed it ☺️.
