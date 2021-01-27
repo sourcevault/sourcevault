@@ -34,6 +34,6 @@ Unlike other commodities, software creates it's own demand ( it's true for techn
 
 Most people were not "demanding" Google / social networks before it became **operational** 🏃🏼‍♂️.
 
-once you accept those economic realities, privateers who raise their 🏴‍☠️ in the name of the artform become formidable foes ⚔, this is the way 🧙🏼.
+once you accept those economic realities, privateers who raise their 🏴‍☠️ in the name of the artform become formidable challengers .... this is the way 🧙🏼.
 
 Most repos you browse ↓ here, you probably didn't realize you needed it ☺️.
