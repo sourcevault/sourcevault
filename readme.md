@@ -37,8 +37,8 @@ Most people were not "demanding" Google / social networks before it became **ope
 once you accept those economic realities, privateers who raise their 🏴‍☠️ in the name of the artform become formidable competitors.
 
 <center>
-<img src="./knight.gif" height="250"/>
-<img src="./baby.gif" height="250"/>
+<img src="./knight.gif" height="200"/>
+<img src="./baby.gif" height="200"/>
 
 </center>
 
